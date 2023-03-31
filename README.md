@@ -1,5 +1,7 @@
 # QuickBoòks Support Phone Number +1855-603-0490
+
 QuickBoòks is a popular accounting software developed and marketed by Intuit. It is designed to help small and medium-sized businesses manage their financial data, such as invoicing, payroll, inventory, and expenses. QuickBoòks allows users to input data, generate reports, track income and expenses, and create budgets. The software can also integrate with other applications, such as banks, credit card companies, and payroll providers, to make accounting tasks easier and more efficient. QuickBoòks is available in desktop and online versions and is widely used by businesses in various industries around the world. 
+https://www.freepik.com/free-photo/group-diverse-people-having-business-meeting_2894621.htm#query=business&position=0&from_view=search&track=sph
 
 QuickBoòks is an accounting software developed and marketed by Intuit. It has a range of features designed to help small and medium-sized businesses manage their finances, including:
 
@@ -15,7 +17,7 @@ QuickBoòks is an accounting software developed and marketed by Intuit. It has a
 Overall, QuickBoòks is designed to simplify and streamline accounting and financial management tasks for small and medium-sized businesses.
 
 
-To contact QuickBoòks support phone number, you can follow these steps:
+# To contact QuickBoòks support phone number, you can follow these steps:
 
     1. Go to the QuickBoòks support website (https://help.QuickBoòks.intuit.com/en_US/contact).
     2. Click on the "Contact Us" button.
@@ -25,4 +27,4 @@ To contact QuickBoòks support phone number, you can follow these steps:
     6. Enter your contact information, including your phone number, and click on the "Call Me" button.
     7. You will receive a call from a QuickBoòks support representative who will assist you with your issue.
 
-Alternatively, you can also contact QuickBoòks support through live chat or email by following the same steps and selecting the appropriate option.
+Alternatively, you can also contact <a href="https://quickkbooks.github.io/">QuickBoòks support</a> through live chat or email by following the same steps and selecting the appropriate option.
