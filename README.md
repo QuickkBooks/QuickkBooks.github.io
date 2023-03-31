@@ -1,6 +1,7 @@
 # QuickBoòks Support +1855-603-0490 Phone Number 
 
 QuickBoòks is a popular accounting software developed and marketed by Intuit. It is designed to help small and medium-sized businesses manage their financial data, such as invoicing, payroll, inventory, and expenses. QuickBoòks allows users to input data, generate reports, track income and expenses, and create budgets. The software can also integrate with other applications, such as banks, credit card companies, and payroll providers, to make accounting tasks easier and more efficient. QuickBoòks is available in desktop and online versions and is widely used by businesses in various industries around the world. 
+
 https://www.freepik.com/free-photo/group-diverse-people-having-business-meeting_2894621.htm#query=business&position=0&from_view=search&track=sph
 
 QuickBoòks is an accounting software developed and marketed by Intuit. It has a range of features designed to help small and medium-sized businesses manage their finances, including:
